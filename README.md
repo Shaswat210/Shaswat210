@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Shaswat210
+- 👀 I’m interested in everything which gives a sensation of magic
+- 🌱 I’m currently learning all about DSA
+- 📫 How to reach me? Just ping me, I will get back to you in no time
